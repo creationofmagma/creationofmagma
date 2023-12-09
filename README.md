@@ -1,2 +1,3 @@
-Im Magma an creator in github i make cleanups to make your computer better and better.
-[Don't copy my stuff or give your self credits.]
+🧹Cleans up disk and unnecessary files.
+✅Completly safe [virus scan if dont believe]
+⏩⏩Reduces lag!!
